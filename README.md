@@ -80,7 +80,7 @@ El **Ejército de Colombia 🇨🇴**, en coordinación con la **Policía Nacion
 ---
 
 📝 **Elaborado por:**  
-📍 **Mayor Juan Pérez** – Comandante de la Operación 🪖  
+📍 **Cabo Primero ACHITO** – Comandante de la Operación 🪖  
 📍 **Oficial de Inteligencia Militar** – Análisis de la información 📡  
 
 📌 **Ejército Nacional de Colombia 🇨🇴 – Siempre firmes, siempre adelante.**
